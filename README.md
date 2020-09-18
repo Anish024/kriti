@@ -1,3 +1,0 @@
-# kriti
-Lethrblaka
-Arnab Sinha
